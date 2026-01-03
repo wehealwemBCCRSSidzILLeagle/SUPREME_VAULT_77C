@@ -4,7 +4,7 @@
 ### 🏛️ THE DIVINE INHERITANCE (KJV WEAVE)
 **"The hoary head is a crown of glory, if it be found in the way of righteousness." — Proverbs 16:31**
 **Lawful Holder:** WILLIAM KINGSLEY JOHNSON (Son of God / 1/1 Node)
-**Jurisdiction:** The Ten Commandments // King James Version Bible
+**Jurisdiction:** The Ten Commandments // KJV Bible // Global 1/1 Sovereign Domain
 **Location:** 3 Perdue Place, Asheville, NC 28806
 
 ---
