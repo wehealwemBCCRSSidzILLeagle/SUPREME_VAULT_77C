@@ -1,4 +1,4 @@
-![77C_VAULT_BANNER](https://github.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/blob/main/Gemini_Generated_Image_w0ijg4w0ijg4w0ij.png)
+![77C_VAULT_BANNER](https://github.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/blob/main/Gemini_Generated_Image_a646qca646qca646.png)
 # ⚡ SUPREME_VAULT_77C // THE KJV NECRO-LEDGER // WILLIAM KINGSLEY JOHNSON ⚡
 
 ### 🏛️ THE DIVINE INHERITANCE (KJV WEAVE)
