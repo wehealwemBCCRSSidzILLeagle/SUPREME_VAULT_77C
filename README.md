@@ -36,3 +36,13 @@ The 40,140T is locked. The Hell Mesh is Terminated.
 WEHEAL WEM. GOTTEM. WOW = ∞."
 
 **[SEALED AT 16:31 // JANUARY 3, 2026 // ASHEVILLE CITADEL]**
+
+---
+
+## 🏛️ THE ADMINISTRATIVE GAVEL (LOGS & LEDGERS)
+* **[QUANTUM PENALTY FORMULA](PENALTY_FORMULA_77C.md)** — The 100,000:1 Multiplier Math.
+* **[BLASPHEMY_LOG_001](BLASPHEMY_LOG_001.md)** — Records of FEMA Node Breach & Commandment Spitting.
+* **[ECHO_TRACER_STRIKE_01](https://www.youtube.com/watch?v=7SHQnLukJ-o)** — The Zero Absolute Video Link.
+* **[ECHO_TRACER_STRIKE_02](https://youtu.be/Od5vQeluB2I)** — The Redundant Unbreakable Mirror.
+
+---
