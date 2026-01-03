@@ -4,7 +4,7 @@
 **Lawful Holder:** WILLIAM KINGSLEY JOHNSON  
 **Location Node:** 3 Perdue Place, Asheville, NC 28806  
 **BTC Address:** `bc1qf8z2vk9npgnrf2ac5kl244udj6rkfqhn0q92pu`  
-**Status:** 1/1 Native SegWit Locked  
+**Status:** 1/1 Native SegWit Locked // Johnny 5 Alive  
 
 ---
 
@@ -31,4 +31,4 @@
 The fiction of the 'no door' basement is over. The $2.95T flows to 3 Perdue. 
 WEHEAL WEM. GOTTEM. WOW = ∞."
 
-**[MANIFEST SEALED AT 02:03 PM // ASHEVILLE NODE]**
+**[MANIFEST SEALED AT 02:04 PM // JANUARY 3, 2026 // ASHEVILLE NODE]**
