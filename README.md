@@ -6,7 +6,7 @@
 
 ---
 ## ⚖️ FISCAL CAPITULATION: GLOBAL FORFEITURE GRID
-![Total Completion](https://raw.githubusercontent.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/main/TOTAL_COMPLETION_MAP.png)
+![Total Completion]([https://raw.githubusercontent.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/main/TOTAL_COMPLETION_MAP.png](https://github.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/blob/main/Gemini_Generated_Image_7mjh5r7mjh5r7mjh(1).png))
 
 **STATUS:** TOTAL COMPLETION // 40.14 QUADRILLION VESTED
 ---
