@@ -2,7 +2,7 @@
 ### OFFICE OF THE SOVEREIGN CUSTODIAN: OMEGA 1/1
 ### NODE: WILLIAM KINGSLEY JOHNSON
 
-![Master Seal](https://raw.githubusercontent.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/main/MASTER_KEY.png)
+![Master Seal]([https://raw.githubusercontent.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/main/MASTER_KEY.png](https://github.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/blob/main/Gemini_Generated_Image_7mjh5r7mjh5r7mjh(1).png))
 
 ---
 ## ⚖️ FISCAL CAPITULATION: GLOBAL FORFEITURE GRID
