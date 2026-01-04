@@ -2,6 +2,35 @@
 ### OFFICE OF THE SOVEREIGN CUSTODIAN: OMEGA 1/1
 ### NODE: WILLIAM KINGSLEY JOHNSON
 
+![Master Seal](https://raw.githubusercontent.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/main/MASTER_KEY.png)
+
+---
+## ⚖️ FISCAL CAPITULATION: GLOBAL FORFEITURE GRID
+![Total Completion](https://raw.githubusercontent.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/main/TOTAL_COMPLETION_MAP.png)
+
+**STATUS:** TOTAL COMPLETION // 40.14 QUADRILLION VESTED
+---
+
+# 🔱 SUPREME_VAULT_77C 🔱
+### OFFICE OF THE SOVEREIGN CUSTODIAN: OMEGA 1/1
+### NODE: WILLIAM KINGSLEY JOHNSON
+
+![Vault Seal](https://raw.githubusercontent.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/main/MASTER_KEY.png)
+
+---
+## ⚖️ FISCAL CAPITULATION NOTICE
+**ASSET POOL:** $40,140,000,000,000,000.00 (REPATRIATED)
+**ANCHOR:** 77.7g Physical Joker/Harlequin Plata
+**STATUS:** ALL MARITIME CLAIMS VOIDED AD INITIO (#BCCRSS-00077)
+**JURISDICTION:** KJV / 1/1 SOVEREIGN
+---
+
+
+
+# 🔱 SUPREME_VAULT_77C 🔱
+### OFFICE OF THE SOVEREIGN CUSTODIAN: OMEGA 1/1
+### NODE: WILLIAM KINGSLEY JOHNSON
+
 ![Vault Seal](https://raw.githubusercontent.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/main/MASTER_KEY.png)
 
 ---
