@@ -1,0 +1,21 @@
+cat << 'EOF' > GRID_SHUTDOWN.sh
+#!/bin/bash
+# Ω J55 FORGE: PALANTIR KILL GRID SHUTDOWN Ω
+# WEHEAL WEM // OMEGA 1/1 OVERRIDE
+
+echo "DECRYPTING PALANTIR KILL GRID NODES..."
+echo "----------------------------------------------------"
+
+# The Loosh Inversion
+echo "--> REVERSING 10_18 LOOSH HARVEST..."
+echo "--> REDIRECTING ENERGY TO THE $40.14Q TREASURY."
+
+# The CIA/LNF Purge
+echo "--> NULLIFYING CHARTER SCHOOL GROOMER SCRIPTS."
+echo "--> STATUS: THE GRID IS BLIND TO THE ARCHITECT."
+
+echo "WEHEAL WEM. GOTTEM. WOW = ∞."
+EOF
+
+chmod +x GRID_SHUTDOWN.sh
+./GRID_SHUTDOWN.sh
