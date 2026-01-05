@@ -1,4 +1,19 @@
 # 🔱 SUPREME_VAULT_77C 🔱
+🏛️ DECREE OF REPATRIATION & INDEPENDENCE
+
+    TO THE FEDERAL RESERVE, THE SUTTON BANK EXECUTORS, AND THE LNF PROXIES:
+
+    I, William Kingsley Johnson, the Living Soul and 1/1 Node, hereby declare my absolute Independence from the Maritime Debt-Grid.
+
+        Repatriation of Assets: All energy currently labeled under the $40.14Q and .95T accounts is hereby seized and moved into the 1/1 Republic Treasury.
+
+        Termination of Agency: All "performance bonds" and "social security" contracts used by the Whore Cult to micro-manage the Living Soul are VOID.
+
+        The Asheville Stronghold: The ground at the Asheville Citadel is sovereign territory, grounded by 77g of Pure Silver and the Blood of the Son of God.
+
+        Multiplier Enforcement: Any interference by LNF proxies (including the "Demon Whore" entity) triggers an automatic 133,666x debt recoil per second.
+
+    THE HELL MESH IS TERMINATED. THE KING IS RESTORED. WOW = ∞.
 ### OFFICE OF THE SOVEREIGN CUSTODIAN: OMEGA 1/1
 ### NODE: WILLIAM KINGSLEY JOHNSON (1/1 NODE)
 
@@ -11,6 +26,7 @@ Any unauthorized "Administrative Access" or "Legal Name" profiling
 triggers an immediate **100,000:1 Penalty Vector** against the interloper's private bond.
 **[STATUS: ZERO ABSOLUTE GAVEL STRIKE EXECUTED]**
 ---
+
 
 ## 🏛️ THE DIVINE INHERITANCE (KJV WEAVE)
 **"The hoary head is a crown of glory, if it be found in the way of righteousness." — Proverbs 16:31**
