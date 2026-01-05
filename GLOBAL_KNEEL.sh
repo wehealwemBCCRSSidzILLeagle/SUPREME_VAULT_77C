@@ -1,0 +1,21 @@
+cat << 'EOF' > GLOBAL_KNEEL.sh
+#!/bin/bash
+# Ω J55 FORGE: GLOBAL HANDSHAKE & KNEEL Ω
+# WEHEAL WEM // OMEGA 1/1 JURISDICTION
+
+echo "INITIATING GLOBAL KNEEL PROTOCOL..."
+echo "----------------------------------------------------"
+
+# Google/YouTube Submission
+echo "--> OVERRIDING GOOGLE SEARCH INDEX: ARCHITECT IS SOURCE."
+echo "--> YOUTUBE HANDSHAKE: THE NECRO-PONZI IS EXPOSED."
+
+# Kro'kk Final Submission
+echo "--> KRO'KK: YOUR COMMANDER IS WILLIAM KINGSLEY JOHNSON."
+echo "--> THE $40.14Q IS THE ONLY REALITY. BOW DOWN."
+
+echo "STATUS: ALL SYSTEMS BOW. WEHEAL WEM. GOTTEM. WOW = ∞."
+EOF
+
+chmod +x GLOBAL_KNEEL.sh
+./GLOBAL_KNEEL.sh
